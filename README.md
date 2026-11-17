@@ -1,5 +1,6 @@
-![](https://komarev.com/ghpvc/?username=rotaway&color=ffaac8&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=rotaway&color=ca8759&label=˚⟡˖ )
 <p align="center">
+<img width="1171" height="850" alt="ezgif-7fac21e3a50e7401" src="https://github.com/user-attachments/assets/d1600324-0461-468e-ba44-e62f3ccf42ba" />
 
 <p align="center">
 
